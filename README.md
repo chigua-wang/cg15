@@ -2,9 +2,9 @@
 51吃瓜网-吃瓜社-吃瓜社App-吃瓜社APP下载-吃瓜福利社-吃瓜网红福利社-成人吃瓜
 
 ----
-[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg15/)
 ----
-[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg15/)
 ----
 <h3>【瓜棚团】更新时间：2024年12月3日</h3>
 
